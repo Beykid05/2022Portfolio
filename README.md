@@ -1,2 +1,2 @@
-## Welcome to William Bastian's Programing Portfolio
+## Welcome to William Bastian's Portfolio
 
